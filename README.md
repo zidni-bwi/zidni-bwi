@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zidni-bwi
 - 👀 I’m interested in Advanced Civilization such as Atlantis & Lemuria
-- 🌱 I’m currently learning Organic Food & Healing Reiki
+- 🌱 I’m currently learning Organic Food & Healing
 - 💞️ I’m looking to collaborate on passion
 - 📫 How to reach me : github
 
